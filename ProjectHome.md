@@ -1,0 +1,3 @@
+![http://4.bp.blogspot.com/-TcAYTyQH7hA/VDvTtOYZHNI/AAAAAAAAAu8/JT7Ygofeknk/s1600/Delphi_mobile_Youtube_Component_2.png](http://4.bp.blogspot.com/-TcAYTyQH7hA/VDvTtOYZHNI/AAAAAAAAAu8/JT7Ygofeknk/s1600/Delphi_mobile_Youtube_Component_2.png)
+
+![http://3.bp.blogspot.com/-56wmOlfSLWI/VDvUsMWfTMI/AAAAAAAAAvU/wIfhDqccFxE/s1600/Delphi_mobile_Youtube_Component_3.png](http://3.bp.blogspot.com/-56wmOlfSLWI/VDvUsMWfTMI/AAAAAAAAAvU/wIfhDqccFxE/s1600/Delphi_mobile_Youtube_Component_3.png)
